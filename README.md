@@ -1,4 +1,4 @@
-Hi, I’m @DillsJr
+Hi, I’m @DillsJr,
 I’m interested in Web Programmer or Desaign Graphic
 I’m currently learning Politeknik LP3I Kramat
 
