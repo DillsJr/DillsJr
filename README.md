@@ -1,5 +1,5 @@
 Hi, I’m @DillsJr,
-I’m interested in Web Programmer or Desaign Graphic, 
+I’m interested in Web Programmer or Design Graphic, 
 I’m currently learning Politeknik LP3I Kramat
 
 How to reach me rizkysabath31@gmail.com
