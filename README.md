@@ -14,4 +14,4 @@ An Informatics Management graduate from Politeknik LP3I Jakarta. I have a strong
 
 ### 📬 Get in Touch
 - **Email:** rizkydillah31@gmail.com
-- **LinkedIn:** [://linkedin.com](https://://linkedin.com)
+- **LinkedIn:** [:rizky-ar](https://www.linkedin.com/in/rizky-ar)
